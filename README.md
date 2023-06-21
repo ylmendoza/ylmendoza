@@ -1,1 +1,1 @@
-👋 Hi, I’m @ylmendoza
+Hi, I’m @ylmendoza
